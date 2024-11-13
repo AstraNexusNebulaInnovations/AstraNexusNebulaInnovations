@@ -11,7 +11,7 @@ With a passion for coding and a keen interest in all things tech, I'm AstraNexus
 
 💡 Feel free to ask me about HTML, CSS, Sass, Bootstrap, JavaScript, TypeScript, React, PHP, Lumen, Laravel, C#, .NET, Java, Spring Boot, Scrum, Google Cloud Platform, GKE, GCE, CI/CD, TDD, DDD, Docker, Kubernetes.
 
-🎉 Fun fact: I look like a hobbit and my profile picture is my trusty feline sidekick. 🐾
+🎉 Fun fact: I look like a hobbit and my profile picture is Neco-Arc Bubbles. 🐾
 
 
 
