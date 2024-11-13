@@ -15,7 +15,7 @@ With a passion for coding and a keen interest in all things tech, I'm AstraNexus
 
 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=CelestialCoder&label=Profile%20views&color=0e75b6&style=flat" alt="CelestialCoder" /> </p>
+<p align="left"> <img src="https://www.google.com/imgres?q=imagen%20porno%20censurado&imgurl=https%3A%2F%2Ftierragamer.com%2Fwp-content%2Fuploads%2F2022%2F07%2Fcensura-japon-portada.jpg&imgrefurl=https%3A%2F%2Ftierragamer.com%2Fnoticias%2Fanime%2Fjapon-condena-a-un-hombre-a-prision-por-eliminar-la-censura-de-los-videos-porno%2F&docid=7yBFEx6klDwhqM&tbnid=0Hb6L_XoMLruCM&vet=12ahUKEwjnmI6j_dmJAxUmIEQIHWcCAMQQM3oECEsQAA..i&w=1280&h=720&hcb=2&ved=2ahUKEwjnmI6j_dmJAxUmIEQIHWcCAMQQM3oECEsQAA"> </p>
 
 
 ------
